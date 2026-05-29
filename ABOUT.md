@@ -11,7 +11,7 @@ DNFLIRT unless close! ⠀ ⠀19yo⠀  ⠀ ⚥ tmasc
 
 <img src="https://i.postimg.cc/76pPgkTK/Untitled569-20260528210016.png" width="20%" align="right">
 
-ㅤㅤtext text text text text text
+ㅤㅤgaybian queer
 
 text text text text text text text text text
 
