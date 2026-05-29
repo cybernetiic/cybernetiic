@@ -7,7 +7,7 @@
 
 ㅤㅤc - did⠀⠀system⠀ ⠀tkn x1⠀⠀ambiam
 
-DNFLIRT unless close!⠀ ⠀19yo
+DNFLIRT unless close! ⠀ ⠀19yo⠀ ⠀⚥
 
 <img src="https://i.postimg.cc/76pPgkTK/Untitled569-20260528210016.png" width="20%" align="right">
 
