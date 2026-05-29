@@ -15,7 +15,7 @@ DNFLIRT unless close! ⠀ ⠀19yo⠀  ⠀ ⚥ tmasc
 
 iwc alwaysㅤㅤdont cuddle ucㅤㅤ
 
-ㅤㅤtext text text text text text
+ㅤㅤ
 
 text text text text text text text text text
 
