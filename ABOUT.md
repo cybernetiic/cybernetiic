@@ -27,6 +27,6 @@ i like **hlvrai**, minecraft, **x-men**, marvel,
 
  lifesteal smp, the summer hikaru died, squid game,
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ+ more unlisted.
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ+ more unlisted.
 
 </div>
