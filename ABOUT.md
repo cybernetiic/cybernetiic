@@ -3,7 +3,7 @@
 <div align="left">
 <br>
 
-NIKO  or  BENREY  or TILL!
+NIKO ⠀⠀ or ⠀⠀ BENREY ⠀⠀ or ⠀⠀ TILL!
 
 ㅤㅤtext text text text text text
 
