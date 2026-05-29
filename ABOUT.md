@@ -9,7 +9,7 @@ text text text text text text text text text
 
 text text text text text text text text text
 
-<img src="https://i.postimg.cc/YqFMBZmq/meoww.png" width="20%" align="right">
+<img src="https://i.postimg.cc/76pPgkTK/Untitled569-20260528210016.png" width="20%" align="right">
 
 ㅤㅤtext text text text text text
 
