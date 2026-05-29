@@ -5,7 +5,7 @@
 
 **NIKO** ⠀⠀ or ⠀⠀ **BENREY** ⠀⠀ or ⠀⠀ **TILL** *!*
 
-ㅤㅤc - did⠀⠀system⠀⠀⠀tkn x1
+ㅤㅤc - did⠀⠀system⠀⠀⠀tkn x1, comp x2
 
 text text text text text text text text text
 
