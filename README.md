@@ -1,16 +1,32 @@
-## Hi there 👋
+<img src="https://i.postimg.cc/gj9tVSc6/Untitled568-20260528205239.png" width="40%" align="left">
 
-<!--
-**cybernetiic/cybernetiic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="left">
+<br>
 
-Here are some ideas to get you started:
+**NIKO** ⠀⠀⠀ or ⠀⠀⠀ **BENREY** ⠀⠀⠀ or ⠀⠀⠀ **TILL** *!*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤㅤc - did⠀⠀system⠀ ⠀tkn x1⠀⠀ambiam
+
+DNFLIRT unless close! ⠀ ⠀19yo⠀  ⠀ ⚥ tmasc
+
+<img src="https://i.postimg.cc/76pPgkTK/Untitled569-20260528210016.png" width="20%" align="right">
+
+ㅤㅤgaybian queerㅤㅤbunny dog thing
+
+iwc alwaysㅤㅤdont cuddle ucㅤㅤ
+
+ㅤㅤ
+
+i like **hlvrai**, minecraft, **x-men**, marvel,
+
+ㅤㅤ**half-life**, ghost bc, tma, **pjsk**, sleep token,
+
+**alnst**, **unstable universe**, vampires,
+
+ㅤㅤclassic lit, bad things, forsaken, ninah, **forensics**,
+
+ lifesteal smp, the summer hikaru died, squid game,
+
+ ㅤㅤㅤ+ more unlisted.
+
+</div>
