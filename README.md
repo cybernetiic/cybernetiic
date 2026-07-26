@@ -21,12 +21,6 @@ i like **hlvrai**, minecraft, **x-men**, marvel,
 
 ㅤㅤ**half-life**, ghost bc, tma, **pjsk**, sleep token,
 
-**alnst**, **unstable universe**, vampires,
-
-ㅤㅤclassic lit, bad things, forsaken, ninah, **forensics**,
-
- lifesteal smp, the summer hikaru died, squid game,
-
- ㅤㅤㅤ+ more unlisted.
+**alnst**, **unstable universe**, vampires, + more unlisted.
 
 </div>
